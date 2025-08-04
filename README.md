@@ -24,6 +24,6 @@
 - LinkedIn: www.linkedin.com/in/andrii-tychenok-235128177
 - Telegram: @drewanalyst
 
-> 🚀 * "Learning by doing, improving by analyzing."*
+> 🚀 "Learning by doing, improving by analyzing."
 
 Thanks for visiting! 👀
